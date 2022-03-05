@@ -4,6 +4,7 @@
 #### :mortar_board: Faculty of Electronics, Telecommunications and Information Technology
 
 A competitive and ambitious person that want to be in a continously learning about latest technology.
+
 I'm a fast learning person and I like to give all of my best when I want to do something good ⚡.
 
 
